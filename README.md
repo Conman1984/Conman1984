@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...networking
 - 🌱 I’m currently learning ...NEC 2022
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...nicholas.srader@hey.com
+- 📫 How to reach me ...nicholas.srader@tutamail.com
 - 😄 Pronouns: ...nicholas srader?
 - ⚡ Fun fact: ...i dont belong here but i have nowhere to go :)
 
